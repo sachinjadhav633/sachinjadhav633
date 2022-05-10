@@ -14,7 +14,6 @@
 - 📫 How to reach me **jadhavsachin9824@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
-https://www.linkedin.com/in/sachin-jadhav-530b421ba/
 <p align="left">
 </p>
 
